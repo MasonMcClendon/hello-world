@@ -1,2 +1,3 @@
 # hello-world
 first repository of my human life... 
+I know almost nothing about coding yet I already want to base my whole entire life on it. HOW FUN RIGHT!!!
